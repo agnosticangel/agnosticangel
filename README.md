@@ -14,7 +14,9 @@ ${\color{black} ............................................. }$[atabook](https:
 <img width="50" height="50" alt="image" src="https://github.com/user-attachments/assets/2d2085ed-2789-48b7-82bb-5122b9ea2efb" />
 
 </p>
-
+<p align="center"> 
+<img width="auto" height="180" alt="image" src="https://github.com/user-attachments/assets/6076a89f-67f8-4521-9512-e6efbe265e6c" />
+</p>
 <h5 align="center">
 <details><summary> dni </summary>
 dark/proshippers; kyman; basic dni </summary> </details>
