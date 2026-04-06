@@ -7,7 +7,7 @@
 <h6 align="center"> i am MYSTERION </h6>  
 <h5 align= "right">  ؟ </h6>
   
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ?ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[atabook](https://limpdeftmet.atabook.org/)${\color{green} ʚ.ᐣɞ }$ [@main](https://github.com/limpdeftmet)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ?ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[atabook](https://limpdeftmet.atabook.org/)${\color{green} ʚ.ᐣɞ }$ [@main](https://github.com/limpdeftmet)
 
 <h6 align="center"> he/him </h6> .ᐣ
 
