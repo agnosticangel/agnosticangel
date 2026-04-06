@@ -15,7 +15,8 @@ ${\color{black} ............................................. }$[atabook](https:
 
 </p>
 <p align="center"> 
-<img width="auto" height="180" alt="image" src="https://github.com/user-attachments/assets/6076a89f-67f8-4521-9512-e6efbe265e6c" />
+<img width="400" height="280" alt="image" src="https://github.com/user-attachments/assets/a5c8ed87-f8bf-407f-be75-7d8a61221140" />
+
 </p>
 <h5 align="center">
 <details><summary> dni </summary>
