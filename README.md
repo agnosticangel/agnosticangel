@@ -7,6 +7,18 @@
 <h6 align="center"> i am MYSTERION </h6>
 
 ${\color{black} ............................................. }$[atabook](https://limpdeftmet.atabook.org/)${\color{green} ʚ.ᐣɞ }$ [@main](https://github.com/limpdeftmet)
+
+<h6 align="center"> he/him </h6> 
+
+<p align="center"> 
+<img width="50" height="50" alt="image" src="https://github.com/user-attachments/assets/2d2085ed-2789-48b7-82bb-5122b9ea2efb" />
+
+</p>
+
+<h5 align="center">
+<details><summary> dni </summary>
+dark/proshippers; kyman; basic dni </summary> </details>
+</h5>
 <!--
 **agnosticangel/agnosticangel** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
