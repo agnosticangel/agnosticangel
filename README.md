@@ -3,7 +3,10 @@
 <img width="380" height="250" alt="image" src="https://github.com/user-attachments/assets/938fe9b7-7ad3-40e6-b68a-e0a7eca4f571" />
 </p>
 
+
 <h6 align="center"> i am MYSTERION </h6>
+
+${\color{black} ........................................... }$[atabook](https://limpdeftmet.atabook.org/)${\color{purple} ʚ.ᐣɞ }$ [@main](https://github.com/limpdeftmet)
 <!--
 **agnosticangel/agnosticangel** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
