@@ -21,5 +21,5 @@
 
 <div align="center">
   
-  | ${\color{green}DO NOT INT}$ <details><summary> </summary> DARK/PROSHIPPERS, kyman, paraphiles i dont care if ur 'trying to get better' usual dni |
+  | ${\color{green}DNI/BLACKLIST}$ <details><summary> </summary> DARK/PROSHIPPERS, kyman, paraphiles i dont care if ur 'trying to get better' usual dni |
 | -------- |
