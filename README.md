@@ -21,5 +21,5 @@
 
 <div align="center">
   
-  | ${\color{green}𝖽𝗈 𝖭𝖮𝖳 𝗂𝗇𝗍}$ <details><summary> </summary> DARK/PROSHIPPERS, kyman, paraphiles i dont care if ur 'trying to get better' usual dni |
+  | ${\color{green}ᴅᴏ ɴᴏᴛ ɪɴᴛ}$ <details><summary> </summary> DARK/PROSHIPPERS, kyman, paraphiles i dont care if ur 'trying to get better' usual dni |
 | -------- |
