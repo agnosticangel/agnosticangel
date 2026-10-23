@@ -9,7 +9,7 @@
 
 <div align="center">
   
-[atabook](https://limpdeftmet.atabook.org/)${\color{green} ʚ.ᐣɞ }$ [@main](https://github.com/limpdeftmet)
+[atabook](https://agnosticangel.atabook.org/)${\color{green} ʚ.ᐣɞ }$ [@main](https://github.com/limpdeftmet)
 </div>
 <h6 align="center"> he/him </h6> .ᐣ
 
