@@ -1,7 +1,10 @@
 <h6 align="center"> i am MYSTERION </h6>  
-<h5 align= "right">  ؟ </h6>
+<h5 align="center">
+<a href="https://visitorbadge.io/status?path=https%3A%2F%2Fgithub.com%2Fagnosticangel"><img src="https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2Fagnosticangel&label=angels&labelColor=%233d284f&countColor=%23a5d63a&style=plastic" /></a>
+
 <p align="center"> 
 <img width="400" height="200" alt="image" src="https://github.com/user-attachments/assets/938fe9b7-7ad3-40e6-b68a-e0a7eca4f571" />  
+
 </p>
 
 <div align="center">
