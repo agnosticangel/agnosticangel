@@ -23,3 +23,11 @@
   
   | ${\color{green}DNI/BLACKLIST}$ <details><summary> </summary> DARK/PROSHIPPERS, kyman, paraphiles i dont care if ur 'trying to get better' usual dni |
 | -------- |
+
+<img height="52" src="https://mountaintown.neocities.org/stamps/kids/fbwkenny.png" /> <img height="52" src="https://mountaintown.neocities.org/stamps/kids/fbwkenny2.png" /><img height="52" src="https://mountaintown.neocities.org/stamps/ships/kenrietta.png" /> <img height="52" src="https://mountaintown.neocities.org/stamps/kids/fbwkenny3.png" /><img height="52" src="https://mountaintown.neocities.org/stamps/kids/fbwkennygif.gif" />
+
+
+
+
+
+
