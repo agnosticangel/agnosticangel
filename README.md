@@ -15,7 +15,7 @@
 
 </p>
 <p align="center"> 
-<img width="400" height="280" src="https://media1.tenor.com/m/Kxf2skzTWwUAAAAC/im-coming-mysterion.gif" /> .ᐣ
+<img width="300" height="400" src="https://media1.tenor.com/m/Kxf2skzTWwUAAAAC/im-coming-mysterion.gif" /> .ᐣ
 
 </p>
 
