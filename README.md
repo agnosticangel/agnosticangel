@@ -24,7 +24,7 @@
 
 <div align="center">
   
-  | ${\color{green}DNI/BLACKLIST}$ <details><summary> </summary> DARK/PROSHIPPERS, kyman, paraphiles i dont care if ur 'trying to get better' usual dni, sp KIDS yumeshipper i see some of u at this area ur weird af |
+  | ${\color{green}DNI/BLACKLIST}$ <details><summary> </summary> **DARK/PROSHIPPERS**, kyman, paraphiles i dont care if ur 'trying to get better' usual dni, sp KIDS yumeshipper i see some of u at this area ur weird af  <h6> side note im in no way comparing these things some are obviously worse than others but they all make me uncomfortabe which is why theyre in my dni |
 | -------- |
 
 <img height="52" src="https://mountaintown.neocities.org/stamps/kids/fbwkenny.png" /> <img height="52" src="https://mountaintown.neocities.org/stamps/kids/fbwkenny2.png" /><img height="52" src="https://mountaintown.neocities.org/stamps/ships/kenrietta.png" /> <img height="52" src="https://mountaintown.neocities.org/stamps/kids/fbwkenny3.png" />
