@@ -24,7 +24,7 @@
 
 <div align="center">
   
-  | ${\color{green}DNI/BLACKLIST}$ <details><summary> </summary> **DARK/PROSHIPPERS**, kyman, a03/c.ai addicts go touch grass, paraphiles i dont care if ur 'trying to get better' usual dni, sp KIDS yumeshipper, the PIP yumeshipper i saw i had to block 2 people ew. <h6> side note im in no way comparing these things some are obviously worse than others but they all make me uncomfortabe which is why theyre in my dni |
+  | ${\color{green}DNI/BLACKLIST}$ <details><summary> </summary> **DARK/PROSHIPPERS**, kyman, carters + carters SHIPPERS, a03/c.ai addicts go touch grass, paraphiles i dont care if ur 'trying to get better' usual dni, sp KIDS yumeshipper, the PIP yumeshipper i saw i had to block 2 people ew. <h6> side note im in no way comparing these things some are obviously worse than others but they all make me uncomfortabe which is why theyre in my dni |
 | -------- |
 
 <img height="52" src="https://mountaintown.neocities.org/stamps/kids/fbwkenny.png" /> <img height="52" src="https://mountaintown.neocities.org/stamps/kids/fbwkenny2.png" /><img height="52" src="https://mountaintown.neocities.org/stamps/ships/kenrietta.png" /> <img height="52" src="https://mountaintown.neocities.org/stamps/kids/fbwkenny3.png" />
