@@ -18,7 +18,6 @@
   
 [atabook](https://agnosticangel.atabook.org/)${\color{green} ʚ.ᐣɞ }$ [@main](https://github.com/limpdeftmet)
 </div>
-<h6 align="center"> he/him </h6> .ᐣ
 
 <div align="center">
   
