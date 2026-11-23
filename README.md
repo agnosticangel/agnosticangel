@@ -1,5 +1,5 @@
 
-## <img  align="left" height="100" src="https://file.garden/ar3ZTaQyJvnIk4_N/cropped_circle_image.png" /> <br/> read dni + about me ^^ 
+## <img  align="left" height="100" src="https://file.garden/ar3ZTaQyJvnIk4_N/cropped_circle_image.png" /> <br/>  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤread dni + about me ^^ 
 
 
 <div align="center">
