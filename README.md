@@ -1,4 +1,4 @@
-## <img align="left" height="100" src="https://file.garden/ar3ZTaQyJvnIk4_N/cropped_circle_image.png" /> read dni + about me ^^ <br/>
+## <img height="100" src="https://file.garden/ar3ZTaQyJvnIk4_N/cropped_circle_image.png" /> read dni + about me ^^ <br/>
 <h6 align="center"> i am MYSTERION </h6> 
 
 <h5 align="center">
