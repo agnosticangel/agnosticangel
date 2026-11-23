@@ -13,9 +13,7 @@
 </div>
 <h6 align="center"> he/him </h6> .ᐣ
 
-<p align="center"> 
-<img width="50" height="50" alt="image" src="https://github.com/user-attachments/assets/2d2085ed-2789-48b7-82bb-5122b9ea2efb" />
-
+<div align="center">
   | ${\color{green}about (wip)}$ <img height="15" src="https://github.com/user-attachments/assets/2d2085ed-2789-48b7-82bb-5122b9ea2efb" /> <details><summary> </summary> 18 ໒꒱ <img height="10" src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSJkCEQRRBKDSvylfX4UnX_b8R_zoHacn6F1E71g8CCpw&s" /> |
 | -------- |
 
