@@ -15,7 +15,7 @@
 
 <div align="center">
   
-  | ${\color{green}about (wip)}$ <img height="15" src="https://github.com/user-attachments/assets/2d2085ed-2789-48b7-82bb-5122b9ea2efb" /> <details><summary> </summary> 18 ໒꒱ <img height="10" src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSJkCEQRRBKDSvylfX4UnX_b8R_zoHacn6F1E71g8CCpw&s" /> <div> feel free to int at any time. im looking 4 friends i dont bite! if u wanna be my friend msg me on atabook <div> [pronouns page](https://en.pronouns.page/@limpdeftmet) <div> <div> <img height="375" src="https://file.garden/ar3ZTaQyJvnIk4_N/IMG_4882.png" />  <div> <h6> i am NOT a fiction kin, system or roleplay account this is a themed github <h6> |
+  | ${\color{green}about}$ <img height="15" src="https://github.com/user-attachments/assets/2d2085ed-2789-48b7-82bb-5122b9ea2efb" /> <details><summary> </summary> 18 ໒꒱ <img height="10" src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSJkCEQRRBKDSvylfX4UnX_b8R_zoHacn6F1E71g8CCpw&s" /> <div> feel free to int at any time. im looking 4 friends i dont bite! if u wanna be my friend msg me on atabook <div> [pronouns page](https://en.pronouns.page/@limpdeftmet) <div> <div> <img height="375" src="https://file.garden/ar3ZTaQyJvnIk4_N/IMG_4882.png" />  <div> <h6> i am NOT a fiction kin, system or roleplay account this is a themed github <h6> |
 | -------- |
 
 </p>
